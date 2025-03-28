@@ -1,0 +1,1 @@
+sambil belajarlaaa# trendtiktok
